@@ -11,5 +11,5 @@
 - 💬 Ask me about anything!
 - 📫 How to reach me: petziferum.de
 - 😄 Pronouns: ...
-- ⚡ Fun fact: The Earth is NOT Flat!
+- ⚡ Fun fact: The Earth is NOT Flat! But my Ass is...
 
