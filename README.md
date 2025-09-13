@@ -10,6 +10,5 @@
 - 🤔 I’m looking for help with Spring Boot
 - 💬 Ask me about anything!
 - 📫 How to reach me: petziferum.de
-- 😄 Pronouns: ...
 - ⚡ Fun fact: The Earth is NOT Flat! But my Ass is...
 
